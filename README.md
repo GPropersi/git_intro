@@ -1,2 +1,1 @@
 Giovanni Propersi
-8
